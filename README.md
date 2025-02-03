@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on research projects
 - 📫 How to reach me: https://about.me/cintia-pla-garcia
 - 😄 Pronouns: Dr, Mrs, She/Her, Phd.
-- ⚡ Fun fact: SciTech!
+- ⚡ Fun fact: SciTech in EduMarket!
 
 <!---
 cplagarc/cplagarc is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
